@@ -1,2 +1,2 @@
 # historia-de-hitler
-ssi
+si lees esto eres lesbiana o gey
